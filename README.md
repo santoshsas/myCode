@@ -1,0 +1,1 @@
+This code and project is just to demostate coding skills and not for any commerial purpose.
